@@ -6,4 +6,4 @@
 👯 I’m looking to collaborate on open-source projects  
 📫 How to reach me: pdkush250@gmail.com  
 😄 Pronouns: He/Him/His  
-💼 Connect with me on [LinkedIn]([[url](https://www.linkedin.com/in/kush-patel-53aab114a)https://www.linkedin.com/in/kush-patel-53aab114a)https://www.linkedin.com/in/kush-patel-53aab114a)https://www.linkedin.com/in/kush-patel-53aab114a]  
+💼 Connect with me on [LinkedIn](https://www.linkedin.com/in/kush-patel-53aab114a)
