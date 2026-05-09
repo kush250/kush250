@@ -1,6 +1,5 @@
-### Hey there 👋
-
-### I am passionate about designing and building scalable software products which are innovative and impactful by programming.    
+## AI/ML at META
+### Passionate about designing and building scalable software products which are innovative and impactful.    
     
 👯 I’m open to collaborate on interesting open-source projects  
 📫 How to reach me: pdkush250@gmail.com  
